@@ -4,10 +4,11 @@
 - 💞️ I’m looking to collaborate on Retailing
 - 📫 How to reach me ckduck1066@duck.com
 - 😄 Pronouns: he, him, you
-- ⚡ Fun fact: God exists and his number (3) is plainly evident throughout the universe, and I studied science at Cambridge Uni, and so I am almost as clever as Sheldon. It is
+- ⚡ Fun fact: God exists and his number (3) is plainly evident throughout the universe, and I studied science at Cambridge Uni, and so I am almost as clever as Sheldon IMO.
 - It is not just that fact makes me sure God exists, the habitable life Universe is so astronomically unlikely 
 - (and I do mean very very very very very unlikely with loads of zeroes before it).
-- The multiverse WAS created by a desperate atheist, so desperate to try and remove the proof that others had found for God's existence.     -  LAW of Conservation of Energy. 
+- The multiverse WAS created by a desperate atheist, so desperate to try and remove the proof that others had found for God's existence.     
+-  LAW of Conservation of Energy https://en.wikipedia.org/wiki/Conservation_of_energy
 So desperate because he forgot about the Conservation in a closed system, the Universe or Universes in the case of the 'so-called' multiverse. The same LAW which is was proven by science! 
 
 - When they predicted and then discovered the existence of a neutrino (something I'm convinced they'll never do for the multiverse!)
