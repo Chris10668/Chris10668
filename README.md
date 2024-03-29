@@ -4,9 +4,10 @@
 - 💞️ I’m looking to collaborate on Retailing
 - 📫 How to reach me ckduck1066@duck.com
 - 😄 Pronouns: he, him, you
-- ⚡ Fun fact: God exists and his number (3) is plainly evident throughout the universe, and I studied science at Cambridge Uni, and so I am almost as clever as Sheldon! It is -  not just that fact makes me sure God exists, the habitable life Universe is so astronomically unlikely 
+- ⚡ Fun fact: God exists and his number (3) is plainly evident throughout the universe, and I studied science at Cambridge Uni, and so I am almost as clever as Sheldon! It is
+-    not just that fact makes me sure God exists, the habitable life Universe is so astronomically unlikely 
  - (and I do mean very very very very very unlikely with loads of zeroes before it).
-- and the multiverse was created by a desperate atheist, desperate to try and remove the proof that others had found for God's existence. Desperate because he forgot about the     LAW of Energy Conservation in a closed system, the Universe or Universes in the case of the 'so-called' multiverse. The same LAW which is was proven by science when they          predicted and then discovered the existence of a neutrino.
+- and the multiverse was created by a desperate atheist, desperate to try and remove the proof that others had found for God's existence. Desperate because he forgot about the    -  LAW of Energy Conservation in a closed system, the Universe or Universes in the case of the 'so-called' multiverse. The same LAW which is was proven by science when they       - predicted and then discovered the existence of a neutrino.
 - 
 
 <!---
